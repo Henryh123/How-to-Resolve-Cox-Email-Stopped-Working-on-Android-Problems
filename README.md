@@ -14,4 +14,7 @@ In case the above-mentioned troubleshooting steps don't resolve issues like Cox 
 
  
 
-Related Post -  COX Webmail Error Codes  ||  Cox Mail Not Responding Properly
+Related Post -  https://contactemail.us/cox-email-not-working-problems/
+
+               https://contactemail.us/cox-email-error-codes-how-to-troubleshoot-it/
+
